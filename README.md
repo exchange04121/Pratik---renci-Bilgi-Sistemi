@@ -1,0 +1,1 @@
+# Pratik---renci-Bilgi-Sistemi
